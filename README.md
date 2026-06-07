@@ -27,7 +27,7 @@
 <p align="center">⤹ DW, MD, WC, AJR, B&L, TADC</p>
 
 
-<p align="center">hi! im Cinder. you might've seen me on Pony Town a couple of times. Cuds are welcome, hides are welcome, group cuddles are welcome, boops are welcome.</p>
+<p align="center">hi! im Cinder. you might've seen me on Pony Town a couple of times. Cuds are welcome, hides are welcome, group cuddles are welcome, boops are welcome. BUT, i dont accept friend reqs (i personally dont like it, i only friend req if its someone i know irl but moots are allowed.) sorry!!</p>
 <p align="center">
 <img src="https://64.media.tumblr.com/72b9d3df6300915c79af7d0bdef3e4e3/154893d0f56505cd-da/s2048x3072/7b673a2a912a85456dca46c75e21fc8f6fb42b01.pnj" alt="Scraps"/>
 </p>
