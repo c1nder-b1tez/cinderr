@@ -26,9 +26,6 @@
 <p align="center">|⟢ Interest !</p>
 <p align="center">⤹ DW, MD, WC, AJR, B&L, TADC</p>
 
-<p align="center">
-<img src="https://s3.ezgif.com/tmp/ezgif-33a0aae186d38f8e.gif" alt="Scraps"/>
-</p>
 
 <p align="center">hi! im Cinder. you might've seen me on Pony Town a couple of times. Cuds are welcome, hides are welcome, group cuddles are welcome, boops are welcome.</p>
 <p align="center">
